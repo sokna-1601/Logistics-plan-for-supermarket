@@ -1,1 +1,0 @@
-# Logistics-plan-for-supermarket
